@@ -28,4 +28,5 @@ No more turning to paid sites. Get all your work done absolutely free.
 
 ## [Click Here](https://nandiniinj.github.io/Resource-Lab/) to view the Project.
 
+### [Click Here](https://drive.google.com/drive/folders/1OpQEhy5wr68w3C-iKECZE3seJbt9bp49?usp=sharing) to view the Expanation Presentation
 
